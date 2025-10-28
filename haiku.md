@@ -1,7 +1,7 @@
 Hello World!
-To the black cat's moon
-Have you ever seen the yellow duck
-And the way he walks
+Did you ever think
+That the girl from the far moon
+Would see his flowers
 
 
 
